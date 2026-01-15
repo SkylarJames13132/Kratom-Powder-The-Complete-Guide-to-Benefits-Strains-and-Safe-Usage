@@ -1,4 +1,3 @@
-![Kratom Powder: Complete Guide to Benefits, Strains, and Safe Usage](https://images.unsplash.com/photo-1607619056574-7b8d3ee536b2?w=1536&h=1024&fit=crop&q=80)
 
 # Kratom Powder: The Complete Guide to Benefits, Strains, and Safe Usage
 ![Lucid_Origin_a_highquality_image_of_kratom_powder_in_a_decorat_0](https://github.com/user-attachments/assets/c92e674d-f2fd-4936-be7a-14515785775d)
